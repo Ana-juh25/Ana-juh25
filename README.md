@@ -8,6 +8,6 @@ Meu nome é Ana Júlia
  
    ### Você entrar em contato comigo 📫
 
-  anajuliasousab@gamail.com
+  anajuliasousab@gmail.com
 
   @anajuliasabadini 
